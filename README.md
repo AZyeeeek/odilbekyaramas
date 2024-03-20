@@ -1,1 +1,1 @@
-# odilbekyaramas
+# odilchaning-tg-boti
